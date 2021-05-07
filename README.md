@@ -1,2 +1,0 @@
-# NEC
-for Team
